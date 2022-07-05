@@ -6,6 +6,5 @@ Hello,
 
 👀 I am intersted to know more about patterns and new methods of solving complex problems. Though, I myself have not seriouosly participated yet. But, look forward to spend more time on Slack.
 
-📫 Email me at noshadyousuf@gmail.com I hope to reply you on time. If late that would be probably of work. 
+📫 Email me at noshadyousuf@gmail.com. 
 
-Hope to catch you soon...  
